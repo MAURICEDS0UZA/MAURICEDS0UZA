@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **maurice.m.dsouza@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1JaL5WQYj4MSeVNZz8mhJ_4sb0EZCm8GR/view](https://drive.google.com/file/d/1JaL5WQYj4MSeVNZz8mhJ_4sb0EZCm8GR/view)
+- 📄 Know about my experiences 👇🏻.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
